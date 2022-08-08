@@ -1,0 +1,1 @@
+# aku pintar
